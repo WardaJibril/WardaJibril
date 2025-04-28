@@ -54,9 +54,6 @@ Feel free to reach out or connect! I’m always open to new opportunities, colla
 
 When I’m not working with data, I enjoy reading **fantasy books**, watching **fantasy shows**, and practicing **archery**. Always excited to learn, grow, and challenge myself.
 
----
-
-> "Data is the new oil, but it's only useful when refined." - Unknown
 
 
 
